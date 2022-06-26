@@ -1,1 +1,0 @@
-# Vertical_Volpe
